@@ -1,5 +1,5 @@
 ### Hi there 👋
-Hi, I’m Itziotzbruh a.k.a rio
+Hi, I’m Itziotzbruhh
 _______
 
 Dudududu why u read dis xD
